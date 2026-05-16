@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Premiere Pro for PC | Adobe Premiere Pro for Windows Script | video-stabilization + noise-reduction offers the most advanced Adobe Premiere Pro for PC | Adobe
 
 
 
